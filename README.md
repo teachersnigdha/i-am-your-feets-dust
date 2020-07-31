@@ -4,41 +4,55 @@
 > [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
 
 ```
-Filled with false magic, not this world,
-It’s all yours,
-Your brothers, friends and relatives,
-No one is hot,
-It’s all yours.
+In an unknown way, I am a traveler,
+I don't know where to go,
+Can't see, look away,
+Shocked. ... (1)
 
-Age after age, time goes by,
-The relationship turned sweet,
-Sweeter than honey, juicy from mangoes,
-Mamata is standing.
+My gray dust is covered with dust,
+Don't get me wrong,
+Wherever he went, the unknown, the unknown,
+It feels like a great arm. ... (2)
 
-Love and affection, the fragrance,
-John floated out of society,
-As Janghabi, Sargu fell,
-Marat Bhuvan came.
+You are mine, hope is the stick,
+The clock did not go fast,
+When the rod was broken, I fell down,
+I couldn't find you. ... (3)
 
-With one eye, tears streamed down his face,
-A million human cries,
-Paran merged, with Paran,
-The world is full of delusions.
+When you say, "What are you doing to me?"
+I am your servant,
+Bewildered, paralyzed,
+Listen to your name. ... (4)
 
-The moving world, some suffering,
-Good morning,
-Queen of Nature, newly dressed,
-Let’s be honest.
+Unknown traveler, no my address,
+How far is the path,
+In the sky of life, you are my moon,
+Add six drops. Amount. ... (5)
 
-In the fifth, in the voice of Koili,
-Good night,
-Diba and Yamini, in the limbs of the earth,
-Pure harmony flows.
+Everyone knows that your existence,
+But you hide,
+Bhakat Ganat, Satisfied.
+Tears well up. ... (6)
 
-Jahnbir’s silent, blue direction,
-The stars are blazing in the sky,
-That heaven, coming down,
-From the Earth’s Book.
+Go as far as you can,
+Playing hide and seek,
+From the sea of sin, the waters of the flood,
+It is said that the body becomes. ... (7)
+
+Time is running out, Lord,
+The last to be born,
+What action, and janme face,
+I'll take another dress. ... (8)
+
+I have always been silent,
+Never did Ali,
+That's why friend, you are a friend,
+Delki from the mind. ... (9)
+
+Short time, short life,
+That's the decent thing to do, and it should end there.
+Hope is not lost, yet Lord,
+Bhakat Mani's friend. ... (10)
 ```
 
 - Poem by Snigdharani Sahoo
